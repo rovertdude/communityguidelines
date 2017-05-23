@@ -1,2 +1,0 @@
-# communityguidelines
-Pugbutts Community Guidelines
